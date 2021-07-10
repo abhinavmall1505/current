@@ -1,3 +1,3 @@
 # current
 ## pushing
-### dsfnsvsk
+### worked on all those given compulsory command 
